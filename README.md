@@ -1,1 +1,0 @@
-# 2-_Info_corto_sql_parati
